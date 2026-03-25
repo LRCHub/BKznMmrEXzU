@@ -1,0 +1,61 @@
+# Billie Eilish – my future
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+My boy's being sus', he was
+shady enough, but now he's just
+a shadow
+My boy loves his friends like I
+love my splitends, and by that
+I mean
+He cuts 'em off
+(What?!)
+My boy
+My boy
+My boy
+Don't love me like he promised
+My boy
+My boy
+My boy
+He ain't a man, and sure as hell
+ain't honest
+My boy's being sus' and he don't
+know how to cuss
+He just sounds like he's tryna
+be his father (Who are you?)
+My boy's an ugly crier but he's
+such a pretty liar
+And by that I mean he said he'd
+"change"
+My boy
+My boy
+My boy
+Don't love me like he promised
+My boy
+My boy
+My boy
+He ain't a man and sure as hell
+ain't honest
+My boy, my boy, my friends, I
+love my split ends
+(Alright dude, go trip over a
+knife)
+My boy
+My boy
+My boy
+Don't love me like he promised
+My boy
+My boy
+My boy
+He ain't a man and sure as hell
+ain't honest
+You want me to be yours, well,
+then you gotta be mine
+And if you want a good girl,
+then goodbye
+You want me to be yours, well,
+then you gotta be mine
+And if you want a good girl,
+then goodbye
+```
